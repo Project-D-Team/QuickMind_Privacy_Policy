@@ -1,0 +1,1 @@
+# QuickMind_Privacy_Policy
